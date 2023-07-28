@@ -1,1 +1,1 @@
-my seconde redmi
+my seconde redmi uptated 
